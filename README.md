@@ -34,4 +34,8 @@
 4. 开始管理你的预设！
 
 
+## 大爷！用的舒服的话赏口饭吃吧！
+## 爱发电
+https://www.ifdian.net/a/vamPresetTool
+
    
